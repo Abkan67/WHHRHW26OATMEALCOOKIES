@@ -1,0 +1,1 @@
+Put your base in a bowl, then add in you ingredients one by one and mix after. When the dough is complete shape it however you like. Preheat the oven to 325 degrees F, and bake them for about 15-20 minutes or until they turn golden-brown.
